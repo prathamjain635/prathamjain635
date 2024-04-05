@@ -1,1 +1,1 @@
-This is just for fun
+To propose and have fun
